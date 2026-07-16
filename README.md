@@ -1,3 +1,4 @@
+https://www.youtube.com/watch?v=EgenzpB7hJ0
 # Lara-do-um-g-n-
 Lara seni çok seviyorum aşkım iyiki doğdun nice mutlu yıllara inşallah hep beraber göreceğiz canım 
  
